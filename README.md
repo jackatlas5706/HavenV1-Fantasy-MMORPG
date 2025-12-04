@@ -1,0 +1,1 @@
+in the havenv1 txt u will find the link to the v1 of the game that i wanted to develop. i fell in love with the game torn.comm but wanted a fantasy version and i am a avid coder and just made this it took about a month and a half! but i love it and it is still i development please look out for more version releases!
